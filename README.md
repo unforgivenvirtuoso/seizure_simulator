@@ -1,5 +1,5 @@
 # seizure_simulator
-my magnum opus 
+my magnum opus this is what they will remember me for
 
 a strange art piece i made bros im very good artist bro pls bro just run file bro its very good code bros bro bro pls bro just be confident bro
 just ldar bro its over bros i have transcended all artists before me bro 
